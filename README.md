@@ -18,4 +18,6 @@ https://www.r10.net/wordpress-kurulum-entegrasyon/2365124-128640-anahtar-teslim-
 - Yorum Hizmetleri
 https://www.r10.net/yorum-hizmetleri/3110215-google-maps-127757-yorum-hizmeti-istege-bagli-turk-ve-yabanci-yorumlar-100-organik.html
 
+- Site Hızlandırma
+https://www.r10.net/wordpress-seo-guvenlik-amp-bakim/1674656-128293100-google-pagespeed-performans128293-wordpress-optimizasyon-500-e-varan-hiz-emrinizde128640.html
 
