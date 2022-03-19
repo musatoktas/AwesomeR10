@@ -15,7 +15,9 @@ https://www.r10.net/account-lisans-item-satisi/2781232-128217-winampoffice-12899
 https://www.r10.net/wordpress-kurulum-entegrasyon/2365124-128640-anahtar-teslim-lisansli-1000465039-blog-kurumsal-e-ticaret-1000465039-wordpress-hizmetleri-128640-ucretsiz-destek.html
 
 
-- Yorum Hizmetleri
+- Google Yorum Hizmetleri
+
+
 https://www.r10.net/yorum-hizmetleri/3110215-google-maps-127757-yorum-hizmeti-istege-bagli-turk-ve-yabanci-yorumlar-100-organik.html
 
 - Site Hızlandırma
@@ -33,3 +35,8 @@ https://www.r10.net/profil/78557-mikailbaykal.html
 - Backlink Paketleri
 
 https://www.r10.net/seo-hizmet-paketleri/826569-seo-paketlerimiz-guncellendi-100-dogalampmanuel-islemler-k-k-ile-odeme-yuksek-pa-da-siteler.html
+
+
+- Ekşi Sözlük
+
+https://www.r10.net/sosyal-backlink-paketleri/2921213-9989-eksi-sozluk-128308-inci-sozluk-128995-uludag-sozluk-128994-kizlar-soruyor-128309-instela9733puiv128293backlinkreklam-tanitimi.html
