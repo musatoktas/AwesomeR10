@@ -21,3 +21,5 @@ https://www.r10.net/yorum-hizmetleri/3110215-google-maps-127757-yorum-hizmeti-is
 - Site Hızlandırma
 https://www.r10.net/wordpress-seo-guvenlik-amp-bakim/1674656-128293100-google-pagespeed-performans128293-wordpress-optimizasyon-500-e-varan-hiz-emrinizde128640.html
 
+- SMM Takipçi Panel
+https://www.r10.net/profil/78557-mikailbaykal.html
