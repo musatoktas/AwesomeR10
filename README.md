@@ -35,6 +35,7 @@ https://www.r10.net/profil/78557-mikailbaykal.html
 - Backlink Paketleri
 
 https://www.r10.net/seo-hizmet-paketleri/826569-seo-paketlerimiz-guncellendi-100-dogalampmanuel-islemler-k-k-ile-odeme-yuksek-pa-da-siteler.html
+https://www.r10.net/Bigseo
 
 
 - Ekşi Sözlük
