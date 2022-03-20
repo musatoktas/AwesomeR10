@@ -43,4 +43,4 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğü satıcıların
 
 ## Google Ads
 - https://www.r10.net/google-adwords-ads/
-
+- https://www.r10.net/PlutoMedya
