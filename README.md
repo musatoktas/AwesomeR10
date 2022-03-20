@@ -37,3 +37,10 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğü satıcıların
 ## Ekşi Sözlük
 
 - https://www.r10.net/sosyal-backlink-paketleri/2921213-9989-eksi-sozluk-128308-inci-sozluk-128995-uludag-sozluk-128994-kizlar-soruyor-128309-instela9733puiv128293backlinkreklam-tanitimi.html
+
+## Siber Güvenlik
+- https://www.r10.net/numanenes
+
+## Google Ads
+- https://www.r10.net/google-adwords-ads/
+
