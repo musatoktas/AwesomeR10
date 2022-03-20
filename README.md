@@ -44,3 +44,6 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğü satıcıların
 ## Google Ads
 - https://www.r10.net/google-adwords-ads/
 - https://www.r10.net/PlutoMedya
+
+## Grafik Tasarım
+- https://www.r10.net/grafik-tasarimcilar/3012598-khaby-r10-da-ivvo-dijital-pazarlama-ajansi-logo-tasarim-konu-tasarim-gif-banner-ve-diger.html
