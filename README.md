@@ -47,3 +47,6 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğü satıcıların
 
 ## Grafik Tasarım
 - https://www.r10.net/grafik-tasarimcilar/3012598-khaby-r10-da-ivvo-dijital-pazarlama-ajansi-logo-tasarim-konu-tasarim-gif-banner-ve-diger.html
+
+## Makale - İçerik
+- https://www.r10.net/doguizm
