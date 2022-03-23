@@ -59,4 +59,5 @@ https://www.r10.net/instagram-hesap-satma/2500821-128165-eski-tarihli-instagram-
 
 
 Youtube En çok İzlenenler sıralaması
-<code>(kanal urlsi)?view=0&sort=p&flow=grid<code>
+<code>(kanal urlsi)?view=0&sort=p&flow=grid</code>
+  
