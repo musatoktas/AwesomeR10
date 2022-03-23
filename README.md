@@ -1,6 +1,7 @@
 # AwesomeR10
 Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğü satıcıların listesini yapıyorum.
 
+
 ## Lisans Satışları
 
 - https://www.r10.net/account-lisans-item-satisi/2990934-128081piyasanin-en-iyisi128081windows-10-sadece-2083789989windows-ve-office-lisanslari9989envato-shutterstock-adobestock9989canva-duolingo11088semrush-moz11088antivirus-ve-vpn-lisanslari.html
@@ -55,3 +56,7 @@ https://www.r10.net/instagram-hesap-satma/2500821-128165-eski-tarihli-instagram-
 
 ## Makale - İçerik
 - https://www.r10.net/doguizm
+
+
+Youtube En çok İzlenenler sıralaması
+<code>(kanal urlsi)?view=0&sort=p&flow=grid<code>
