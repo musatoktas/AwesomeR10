@@ -57,6 +57,8 @@ https://www.r10.net/instagram-hesap-satma/2500821-128165-eski-tarihli-instagram-
 ## Makale - İçerik
 - https://www.r10.net/doguizm
 
+## Off-Site SEO
+- https://www.r10.net/seo-hizmet-paketleri/1936197-9989zamlara-inat-50-dev-indirim9989r10un-en-cok-tesekkur-konusu-olan-seo-paketleri128640inanilmaz-sonuclar128640.html
 
 Youtube En çok İzlenenler sıralaması
 <code>(kanal urlsi)?view=0&sort=p&flow=grid</code>
