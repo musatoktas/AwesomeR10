@@ -31,7 +31,8 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğü satıcıların
 
 
 ## İnstagram Hesap Satış
-https://www.r10.net/instagram-hesap-satma/2500821-128165-eski-tarihli-instagram-hesaplari-satista-128640-surekli-guncel-konu-128640-sinirsiz-stok-128226en-uygun-fiyat128175.html
+- https://www.r10.net/instagram-hesap-satma/2500821-128165-eski-tarihli-instagram-hesaplari-satista-128640-surekli-guncel-konu-128640-sinirsiz-stok-128226en-uygun-fiyat128175.html
+- https://www.r10.net/profil/107372-rbmedya.html
 
 ## Instagram Mavi Tikli Yorum
 - https://www.r10.net/instagram-reklam-alimi-satimi/2977997-mavi-tikli-hesaptan-yorumlar-uygun-fiyata.html
