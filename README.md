@@ -1,5 +1,5 @@
 # AwesomeR10
-Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğü satıcıların listesini yapıyorum.
+Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıların listesini yapıyorum.
 
 
 ## Lisans Satışları
@@ -39,6 +39,9 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğü satıcıların
 
 ## Instagram Organik Reklam
 - https://www.r10.net/profil/107372-rbmedya.html
+
+## Instagram Kapanan Hesap Açma
+- https://www.r10.net/sosyalio
 
 
 ## Backlink Paketleri
