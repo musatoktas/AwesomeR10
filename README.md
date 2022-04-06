@@ -72,6 +72,8 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 
 ## SEO
 - https://www.r10.net/msk
+- https://www.r10.net/ersin
+- https://www.r10.net/yigit
 
 ## Off-Site SEO
 - https://www.r10.net/seo-hizmet-paketleri/1936197-9989zamlara-inat-50-dev-indirim9989r10un-en-cok-tesekkur-konusu-olan-seo-paketleri128640inanilmaz-sonuclar128640.html
