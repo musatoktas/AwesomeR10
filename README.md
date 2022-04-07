@@ -43,6 +43,9 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 ## Instagram Kapanan Hesap Açma
 - https://www.r10.net/sosyalio
 
+## Twitter RT Hizmetleri
+- https://www.r10.net/arwensen
+
 
 ## Backlink Paketleri
 
