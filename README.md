@@ -93,11 +93,15 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 - https://www.r10.net/search.php?searchid=58593075
 
 ## Trustpilot
-
 - https://www.r10.net/profil/23884-bymadak.html
 - https://www.r10.net/yorum-hizmetleri/2605445-trustpilot-yorum-hizmeti-istenilen-lokasyonda-yorum-atilir.html
 
+## Tanıtım Videosu
+-https://bionluk.com/busedemirci
 
+## Seslendirme
+- https://bionluk.com/mugecakmak17
+- https://bionluk.com/zfrssy/Turkce-ve-Ingilizce-farkli-metin-turlerini-seslendirebilirim-230835
 
 
 
