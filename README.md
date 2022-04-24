@@ -107,4 +107,7 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 
 Youtube En çok İzlenenler sıralaması
 <code>(kanal urlsi)?view=0&sort=p&flow=grid</code>
+
+Youtube Kanala Abone ol!
+<code>(kanal urlsi)?sub_confirmation=1</code>
   
