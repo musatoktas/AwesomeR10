@@ -87,10 +87,12 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 ## Off-Site SEO
 - https://www.r10.net/seo-hizmet-paketleri/1936197-9989zamlara-inat-50-dev-indirim9989r10un-en-cok-tesekkur-konusu-olan-seo-paketleri128640inanilmaz-sonuclar128640.html
 
+
 ## On-Site SEO
 
 ## Tanıtım Yazısı - Basın Bülteni
 - https://www.r10.net/search.php?searchid=58593075
+- https://www.r10.net/profil/77798-vitruvius.html Yabancı dilde
 
 ## Trustpilot
 - https://www.r10.net/profil/23884-bymadak.html
