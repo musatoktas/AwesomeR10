@@ -84,6 +84,10 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 - https://www.r10.net/yigit
 - https://www.r10.net/seocalismasi
 
+## Özel Tasarım WP
+- https://www.r10.net/profil/39457-metin_nn.html
+
+
 ## Off-Site SEO
 - https://www.r10.net/seo-hizmet-paketleri/1936197-9989zamlara-inat-50-dev-indirim9989r10un-en-cok-tesekkur-konusu-olan-seo-paketleri128640inanilmaz-sonuclar128640.html
 - https://www.r10.net/betulkisa
