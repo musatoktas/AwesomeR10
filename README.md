@@ -109,6 +109,8 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 - https://bionluk.com/mugecakmak17
 - https://bionluk.com/zfrssy/Turkce-ve-Ingilizce-farkli-metin-turlerini-seslendirebilirim-230835
 
+## Wordpress
+- https://www.r10.net/keremiya
 
 
 Youtube En çok İzlenenler sıralaması
