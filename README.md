@@ -111,7 +111,7 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 
 ## Wordpress
 - https://www.r10.net/keremiya
-
+- https://www.r10.net/ucretli-wordpress-isleri/844645-wordpress-iyilestirme-duzenleme-optimize-tema-plug-in-yapilir.html
 
 Youtube En çok İzlenenler sıralaması
 <code>(kanal urlsi)?view=0&sort=p&flow=grid</code>
