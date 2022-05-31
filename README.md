@@ -83,6 +83,7 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 - https://www.r10.net/ersin
 - https://www.r10.net/yigit
 - https://www.r10.net/seocalismasi
+- https://www.r10.net/profil/91303-hussein.html
 
 ## Özel Tasarım WP
 - https://www.r10.net/profil/39457-metin_nn.html
