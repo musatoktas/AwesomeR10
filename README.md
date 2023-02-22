@@ -92,6 +92,7 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 ## Off-Site SEO
 - https://www.r10.net/seo-hizmet-paketleri/1936197-9989zamlara-inat-50-dev-indirim9989r10un-en-cok-tesekkur-konusu-olan-seo-paketleri128640inanilmaz-sonuclar128640.html
 - https://www.r10.net/betulkisa
+- https://www.r10.net/tanitim-yazisi-paketleri/3471261-global-sitelerden-tanitim-marketwatch-fox-ask-com-digital-journal-9889basin-bulteni-ve-tanitim-yazisi-bir-arada-azcentral-com-daily-herald-fox-news-129351simdi-haber-yaptirin.html?time=1677058982430
 
 ## On-Site SEO
 
