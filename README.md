@@ -69,6 +69,9 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 - https://www.r10.net/google-adwords-ads/
 - https://www.r10.net/PlutoMedya
 
+## Google Eklenti
+- https://www.r10.net/sosyal-backlink-paketleri/2922022-128640127350127358127358127350127355127348-amca-sizi-daha-cok-sevecek127919-google-chrome-magazasindan-organik-backlink-firsati-127942-a.html
+
 ## Grafik Tasarım
 - https://www.r10.net/grafik-tasarimcilar/3012598-khaby-r10-da-ivvo-dijital-pazarlama-ajansi-logo-tasarim-konu-tasarim-gif-banner-ve-diger.html
 
