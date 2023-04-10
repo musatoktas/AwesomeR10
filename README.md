@@ -23,7 +23,7 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 
 ## Site Hızlandırma
 
-
+- https://www.r10.net/ucretli-wordpress-isleri/3584203-teknik-seo-uzmanindan-128293-wordpress-site-hizlandirma-hizmeti-128293-gercek-hiz-odakli.html
 - https://www.r10.net/wordpress-seo-guvenlik-amp-bakim/1674656-128293100-google-pagespeed-performans128293-wordpress-optimizasyon-500-e-varan-hiz-emrinizde128640.html
 
 ## SMM Takipçi Panel
