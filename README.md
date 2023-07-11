@@ -10,6 +10,8 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 
 - https://www.r10.net/account-lisans-item-satisi/2781232-128217-winampoffice-128995-ahrefsampsemrush-128308-shutterampfreepik-128994-envatoamppngtree-128309-quillbotampgrammarly-66-urun.html
 
+- https://www.r10.net/hesap-lisans-alisverisi/2578000-127942-1-r10-da-lider-panelsiz-9989-envato-128997-shutterstock-adobe-stock-istock-129003-semrush-9989-canva-duolingo-128999-office-9989-grammarly-9989-creative-fabrica-129002-placeit-129002-picsart-ve-dahasi.html
+
 
 ## Wordpress Webmasterlar
 
