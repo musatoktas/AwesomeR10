@@ -16,6 +16,7 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 ## Wordpress Webmasterlar
 
 - https://www.r10.net/wordpress-kurulum-entegrasyon/2365124-128640-anahtar-teslim-lisansli-1000465039-blog-kurumsal-e-ticaret-1000465039-wordpress-hizmetleri-128640-ucretsiz-destek.html
+- https://www.r10.net/kanthemes
 
 
 ## Google Yorum Hizmetleri
