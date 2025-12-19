@@ -113,6 +113,7 @@ Selamlar R10'da ticaret yaptığım veya yapmayı düşündüğüm satıcıları
 ## Trustpilot
 - https://www.r10.net/profil/23884-bymadak.html
 - https://www.r10.net/yorum-hizmetleri/2605445-trustpilot-yorum-hizmeti-istenilen-lokasyonda-yorum-atilir.html
+- https://www.r10.net/yorum-hizmetleri/2732220-5-yildiz-degerlendirme-pozitif-inceleme-tum-yorum-hizmetleri-seokoz.html?time=1766134848101
 
 ## Tanıtım Videosu
 -https://bionluk.com/busedemirci
